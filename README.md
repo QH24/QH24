@@ -1,2 +1,1 @@
-
-LOOKING FOR TERMINAL.
+Im a freelancer
